@@ -1,1 +1,1 @@
-Hello
+Weekly content provided by Spartificial.
